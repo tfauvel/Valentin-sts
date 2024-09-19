@@ -22,3 +22,4 @@ Voici quelques compétences que j'ai développées :
 
 
 Merci d'avoir visité mon profil GitHub ! N'hésite pas à me contacter si tu veux discuter de projets ou de développement informatique.
+sguqjsykfb vlieyfuvzL
